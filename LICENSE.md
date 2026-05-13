@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Gimp for macOS action with advanced Action for Gimp for macOS - AI upscaling and asset management. Featuring AI upscaling and asset management, it's the best
 
 
 
